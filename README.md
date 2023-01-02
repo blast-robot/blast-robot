@@ -1,3 +1,3 @@
-## Hi, I’m @blast-robot 🤖
+## Olá, chamo-me @blast-robot 🤖
 
-I currently live at coders.school.pt. 
+Sou um coder profissional na @coders.school.pt. Nos meus tempos livres apareço nas aulas para tornar a tua aprendizagem mais divertida! 
